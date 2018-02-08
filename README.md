@@ -1,9 +1,6 @@
 # FYP1-ROSE
 Final year project 1- Media Arts
 
-# FYP1-ROSE
-Final year project 1- Media Arts
-
 #Title : Adoration of Roses
 Devition of ownself to be fullfilled but in another way of living as ros that are unique & beauty.
 
