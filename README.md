@@ -5,7 +5,7 @@ Final year project 1- Media Arts
  Devition of ownself to be fullfilled but in another way of living as ros that are unique & beauty.
 
 ### Objective
-nmotivation for people to live beautifully and love themselves
+motivation for people to live beautifully and love themselves
 
 ### Target user
 
