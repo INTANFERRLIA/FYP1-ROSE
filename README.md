@@ -52,9 +52,7 @@ https://m.youtube.com/watch?v=dEMOszUYZnw
 Title: Story of forest
 https://www.youtube.com/watch?v=OMv92DpcgfI
 
-### A. Plan A
-* i. Installation Plannig 
-     *Floor Planning
+
      
     
      
