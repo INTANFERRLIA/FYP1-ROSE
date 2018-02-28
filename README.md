@@ -42,6 +42,12 @@ same love as human somehow without other mechanism they can't live on their own.
 Title:Gesture recognition using arduino and leap motion
 https://m.youtube.com/watch?v=VmLS9psMCSY
 
+### ii. Case Study 2
+
+Title: Interaction with virtual shadow through real shadow using two projectors
+https://m.youtube.com/watch?v=dEMOszUYZnw
+
+
 
 
 
