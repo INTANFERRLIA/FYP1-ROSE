@@ -38,7 +38,9 @@ same love as human somehow without other mechanism they can't live on their own.
 ### Justification
 
 ### i. Case Study 1
-file:///Volumes/FERRLIA/MA-%20FYP1/IMG_4560.PNG
+
+Title:Gesture recognition using arduino and leap motion
+https://m.youtube.com/watch?v=VmLS9psMCSY
 
 
 
