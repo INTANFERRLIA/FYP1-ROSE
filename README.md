@@ -35,6 +35,11 @@ motivation for people to live beautifully and love themselves
 because without that living ting can't be lives longer. Rose are living thing same as human that need 
 same love as human somehow without other mechanism they can't live on their own.
 
+### Justification
+
+### i. Case Study 1
+file:///Volumes/FERRLIA/MA-%20FYP1/IMG_4560.PNG
+
 
 
 
